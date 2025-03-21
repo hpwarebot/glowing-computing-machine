@@ -4,3 +4,8 @@
 
 - I'm having trust issues rn
 - this school sucks
+
+- https://gs06.edu.yhw.tw/ this is really weird using vitepress to submit the files. I really doesn't link this 
+
+- Inject here 
+
