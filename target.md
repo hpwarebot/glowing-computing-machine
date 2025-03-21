@@ -3,3 +3,4 @@
     - I have no idea what is happening with this software
 
 - I'm having trust issues rn
+- this school sucks
